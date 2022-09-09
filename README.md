@@ -1,2 +1,2 @@
-# R-ONE-OFFICIALS
-About R乛One Team! Who We Are ? R乛One team have been in this gaming community since PUBG hax were introduced, so we know all there is you can know about it. We are ready to help you to get that conqueror you've been trying to get. In this community all hackers and legit players play together, We will provide you with the best hax and advice that is safe for your high level and expensive PUBG accounts. If any hax or bypass is not safe, we will let you know through our constant updates on Discord server and Telegram.  We will not lie to our customers just for selling purposes because we know how it feels when a high level and expensive account gets banned.  We have a professional team for supporting you throughout your experience and resolving any issues you might face to get the tool running smoothly. So don't delay and get your keys and get the road to conqueror started without any worries.
+HELLO WORLD
+PIXIO HERE,
